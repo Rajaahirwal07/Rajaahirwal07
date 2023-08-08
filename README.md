@@ -5,6 +5,8 @@
 
 - 🌱 I’m currently learning **Java**
 
+- I'm currently Looking For New Role **Sofware Engineer as a Fresher**
+
 - 📫 How to reach me **rajaraj8042@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
